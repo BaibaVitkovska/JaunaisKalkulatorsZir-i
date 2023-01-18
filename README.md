@@ -1,1 +1,1 @@
-# JaunaisKalkulatorsZir-i
+# JaunaisKalkulatorsZirni
